@@ -6,7 +6,7 @@ CONTENT WARNING: aestheticized obsession, creepy imagery
 
 ![Trickyourtreat](https://komarev.com/ghpvc/?username=trickyourtreat&color=a00000&style=flat-square)
   
-   ♱ [Join My Discord](https://discord.gg/Ya4ffx8ZRc) ♱ [Strawpage](https://trickyourmind.straw.page/) ♱ [Atabook](https://trickyourtreat.atabook.org/) ♱
+   ♱ [Join My Discord](https://discord.gg/Ya4ffx8ZRc) ♱ [Strawpage](https://trickyourtreat.straw.page/) ♱ [Atabook](https://trickyourtreat.atabook.org/) ♱
 </h1> 
 
 <p align="center">
