@@ -19,7 +19,7 @@ CONTENT WARNING: aestheticized obsession, creepy imagery
 
 <img width="25" src="https://cdn.discordapp.com/emojis/1234177015821635615.webp?size=96&quality=lossless" alt="Druggies">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come find me](https://open.spotify.com/playlist/46YmxbXwqsG6nZIZJ2lKkc?si=4e9c218955f74f68) ılıl
+˖°﹒[come find me](https://open.spotify.com/playlist/4XOx488OsFaJQqFZzLUyEW?si=01d58bddafde469f) ılıl
 
 ”-but I continue living out of spite.„ ⋆☾</h3>
 
