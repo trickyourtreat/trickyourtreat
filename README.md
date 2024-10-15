@@ -2,26 +2,26 @@
 
 <h1 align="center">Welcome to the freak zone .
 
-CONTENT WARNING: aestheticized obsession, creepy imagery
+CONTENT WARNING: i am VERY honest about questions
 
-![Trickyourtreat](https://komarev.com/ghpvc/?username=trickyourtreat&color=a00000&style=flat-square)
+![Trickyourtreat](https://komarev.com/ghpvc/?username=trickyourtreat&color=f4c644&style=flat-square)
   
-   ♱ [Join My Discord](https://discord.gg/Ya4ffx8ZRc) ♱ [Strawpage](https://puppytreats.straw.page/) ♱ [Atabook](https://trickyourtreat.atabook.org/) ♱
+   𓆩⋅•⋅⊰ [Join My Discord](https://discord.gg/Ya4ffx8ZRc) ♡ [Strawpage](https://puppytreats.straw.page/) ♡ [Atabook](https://trickyourtreat.atabook.org/) ⊱⋅•⋅𓆪
 </h1> 
 
 <p align="center">
-    <img width="400" src="https://www.pngall.com/wp-content/uploads/15/Weirdcore-Eyes-PNG-Cutout.png" alt="watcher">
+    <img width="400" src="https://media.tenor.com/RboGj6iwlKYAAAAj/puppy.gif" alt="bark">
 </p>
 
-<h3 align="center">⇣⇡﹒@[Cyrus Drake]﹕♱﹒
+<h3 align="center">⇣⇡﹒@[Cyrus Drake]﹕♡﹒
 
-  🤡⁀➴﹒”Every day is harder than the last,-„
+  🐕⁀➴﹒”i bark like a god when i,-„
 
-<img width="25" src="https://cdn.discordapp.com/emojis/1234177015821635615.webp?size=96&quality=lossless" alt="Druggies">﹒[he . him]﹒zᶻ﹔
+<img width="25" src="https://cdn3.emoji.gg/emojis/51521-puppy-uwu.png" alt="Druggies">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come find me](https://open.spotify.com/playlist/4XOx488OsFaJQqFZzLUyEW?si=01d58bddafde469f) ılıl
+˖°﹒[come vibe with me](https://open.spotify.com/playlist/2G89oEDyD99CiQhZ3HtkmI?si=5da923c5da874c41) ılıl
 
-”-but I continue living out of spite.„ ⋆☾</h3>
+”-stand beside his holy light.„ ⋆☾
 
 
-  <img width="200" src="https://myspace.windows93.net/u/56496/avatar.jpg" alt="bunny"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=d90808&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://64.media.tumblr.com/d1ae21f1afcee9fb6db80206d5c76cb9/2fd2a9c8143ddf40-9c/s640x960/b6622cfd0cb450aabd8f4d6c73d48d9fb038ed48.png" alt="teeth">
+  <img width="200" src="https://media.tenor.com/Yz4EqiqC-lIAAAAi/dog-puppy.gif" alt="dogger"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=f4c644&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://media.tenor.com/WKOi-zjvIc4AAAAi/doggo-arrive-doggo.gif" alt="hello"></h3>
