@@ -1,6 +1,6 @@
 
 
-<h1 align="center">Welcome to the freak zone .
+<h1 align="center">Welcome to the circus .
 
 CONTENT WARNING: i am VERY honest about questions
 
@@ -25,3 +25,8 @@ CONTENT WARNING: i am VERY honest about questions
 
 
   <img width="200" src="https://media.tenor.com/Yz4EqiqC-lIAAAAi/dog-puppy.gif" alt="dogger"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=f4c644&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://media.tenor.com/WKOi-zjvIc4AAAAi/doggo-arrive-doggo.gif" alt="hello"></h3>
+
+<h1 align="center">Additional: I am the runner of the ventbook page on atabook, which you can find below!
+  
+  !! [ventbook](https://ventbook.atabook.org/) !!
+</h1> 
