@@ -1,6 +1,6 @@
 
 
-<h1 align="center">Welcome to the circus .
+<h1 align="center">Welcome to the Chruch of Solathrin .
 
 CONTENT WARNING: i am VERY honest about questions
 
@@ -10,21 +10,21 @@ CONTENT WARNING: i am VERY honest about questions
 </h1> 
 
 <p align="center">
-    <img width="400" src="https://media.tenor.com/RboGj6iwlKYAAAAj/puppy.gif" alt="bark">
+    <img width="400" src="https://i.pinimg.com/originals/c5/af/66/c5af6686512a5dbde8d4f295008edad9.gif" alt="rain">
 </p>
 
 <h3 align="center">⇣⇡﹒@[Cyrus Drake]﹕♡﹒
 
-  🐕⁀➴﹒”i bark like a god when i,-„
+  ♱⁀➴﹒”beata maria, i never was a righteous man,-„
 
-<img width="25" src="https://cdn3.emoji.gg/emojis/51521-puppy-uwu.png" alt="Druggies">﹒[he . him]﹒zᶻ﹔
+<img width="25" src="https://cdn3.emoji.gg/emojis/8382-pray-angel.png" alt="angel">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come vibe with me](https://open.spotify.com/playlist/2G89oEDyD99CiQhZ3HtkmI?si=5da923c5da874c41) ılıl
+˖°﹒[come vibe with me](https://open.spotify.com/playlist/2pPHI0rkNBfLJXvVOtAY93?si=87d252c98fb641de) ılıl
 
-”-stand beside his holy light.„ ⋆☾
+”-but i shall stand to claim holy origins.„ ⋆☾
 
 
-  <img width="200" src="https://media.tenor.com/Yz4EqiqC-lIAAAAi/dog-puppy.gif" alt="dogger"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=f4c644&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://media.tenor.com/WKOi-zjvIc4AAAAi/doggo-arrive-doggo.gif" alt="hello"></h3>
+  <img width="200" src="https://static.myfigurecollection.net/upload/pictures/2021/11/22/2921881.gif" alt="wings"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=f4c644&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://i.pinimg.com/originals/44/d5/5b/44d55b8ae8fede8ec1976c51f12e8861.gif" alt="frollo"></h3>
 
 <h1 align="center">Additional: I am the runner of the ventbook page on atabook, which you can find below!
   
