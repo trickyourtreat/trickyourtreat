@@ -19,7 +19,7 @@ CONTENT WARNING: i am VERY honest about questions
 
 <img width="25" src="https://emoji.discadia.com/emojis/ca9c6528-664d-46fc-88ee-77c79c5d7167.PNG" alt="teeth">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come vibe with me](https://open.spotify.com/playlist/7DZVYhMb65jrTl1f0Ev3LG?si=8c549e5714e04eda) ılıl
+˖°﹒[come vibe with me](https://open.spotify.com/playlist/6LW8ktRsvn4JirxLm1SAVh?si=cbf36a4b14554b78) ılıl
 
 ”-I don't know why, but I like it~„ ⋆☾
 
