@@ -6,20 +6,20 @@ CONTENT WARNING: i am VERY honest about questions
 
 ![Trickyourtreat](https://komarev.com/ghpvc/?username=trickyourtreat&color=3c091e&style=flat-square)
   
-   𓆩⋅•⋅⊰ [Strawpage](https://missinghound.straw.page/) ♡ [Atabook](https://trickyourtreat.atabook.org/) ♡ [18+ D&D Group](https://mhdnd.carrd.co/) ♡ [16+ D&D Group](https://veroxcampaign.carrd.co/)⊱⋅•⋅𓆪
+   𓆩⋅•⋅⊰ [Strawpage](https://missinghound.straw.page/) ♡ [Atabook](https://trickyourtreat.atabook.org/)⊱⋅•⋅𓆪
 </h1> 
 
 <p align="center">
     <img width="400" src="https://i.pinimg.com/originals/7d/af/7a/7daf7af31e0012023fb2f7dd7975a335.gif" alt="run">
 </p>
 
-<h3 align="center">⇣⇡﹒@[Felix / Druid]﹕♡﹒
+<h3 align="center">⇣⇡﹒@[Skully / Trick]﹕♡﹒
 
   ♱⁀➴﹒”hurt me and tell me you're mine,-„
 
 <img width="25" src="https://emoji.discadia.com/emojis/ca9c6528-664d-46fc-88ee-77c79c5d7167.PNG" alt="teeth">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come vibe with me](https://open.spotify.com/playlist/6LW8ktRsvn4JirxLm1SAVh?si=cbf36a4b14554b78) ılıl
+˖°﹒[come vibe with me](https://open.spotify.com/playlist/3FvbWCQkAY19jCDrLllSNo?si=Vaa6psAJTJ6PgY1lmE_4Gg&pi=YwiiMX9QTn6CH) ılıl
 
 ”-I don't know why, but I like it~„ ⋆☾
 
