@@ -6,7 +6,7 @@ CONTENT WARNING: i am VERY honest about questions
 
 ![Trickyourtreat](https://komarev.com/ghpvc/?username=trickyourtreat&color=3c091e&style=flat-square)
   
-   𓆩⋅•⋅⊰ [Strawpage](https://missinghound.straw.page/) ♡ [Atabook](https://trickyourtreat.atabook.org/)⊱⋅•⋅𓆪
+   𓆩⋅•⋅⊰ [Strawpage](https://trickyourtreat.straw.page/) ♡ [Atabook](https://trickyourtreat.atabook.org/)⊱⋅•⋅𓆪
 </h1> 
 
 <p align="center">
