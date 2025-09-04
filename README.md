@@ -13,7 +13,7 @@ CONTENT WARNING: i am VERY honest about questions
     <img width="400" src="https://i.pinimg.com/originals/7d/af/7a/7daf7af31e0012023fb2f7dd7975a335.gif" alt="run">
 </p>
 
-<h3 align="center">⇣⇡﹒@[Skully / Trick]﹕♡﹒
+<h3 align="center">⇣⇡﹒@[Butcher]﹕♡﹒
 
   ♱⁀➴﹒”hurt me and tell me you're mine,-„
 
