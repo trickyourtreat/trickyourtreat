@@ -10,7 +10,7 @@ CONTENT WARNING: i am VERY honest about questions
 </h1> 
 
 <p align="center">
-    <img width="400" src="https://i.pinimg.com/originals/7d/af/7a/7daf7af31e0012023fb2f7dd7975a335.gif" alt="run">
+    <img width="400" src="https://i.pinimg.com/1200x/d1/7a/ff/d17aff303cb37798d5151cd99f63c7bf.jpg" alt="run">
 </p>
 
 <h3 align="center">⇣⇡﹒@[Butcher]﹕♡﹒
@@ -19,12 +19,12 @@ CONTENT WARNING: i am VERY honest about questions
 
 <img width="25" src="https://emoji.discadia.com/emojis/ca9c6528-664d-46fc-88ee-77c79c5d7167.PNG" alt="teeth">﹒[he . him]﹒zᶻ﹔
 
-˖°﹒[come vibe with me](https://open.spotify.com/playlist/3FvbWCQkAY19jCDrLllSNo?si=Vaa6psAJTJ6PgY1lmE_4Gg&pi=YwiiMX9QTn6CH) ılıl
+˖°﹒[come vibe with me](https://open.spotify.com/playlist/46YmxbXwqsG6nZIZJ2lKkc?si=cf3b3848995845b0) ılıl
 
 ”-I don't know why, but I like it~„ ⋆☾
 
 
-  <img width="200" src="https://i.pinimg.com/originals/04/42/f7/0442f7fd0dea5dd5019d06ed4b518f79.gif" alt="snow"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=3c091e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://i.pinimg.com/originals/fa/5a/8b/fa5a8bd276205020875f432aa9f59d6a.gif" alt="bark"></h3>
+  <img width="200" src="https://i.pinimg.com/736x/84/aa/f5/84aaf5a1fd365f5ad74e4294c12deea9.jpg" alt="snow"> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31kxgcliwcskgcwvjc57akfwbihu&cover_image=true&theme=novatorem&show_offline=true&background_color=09021d&interchange=false&bar_color=3c091e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img width="200" src="https://i.pinimg.com/1200x/7a/69/d9/7a69d93041a4b950136ef87007a1b601.jpg" alt="bark"></h3>
 
 <h1 align="center">Additional: I am the runner of the ventbook page on atabook, which you can find below!
   
